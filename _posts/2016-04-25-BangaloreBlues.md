@@ -8,7 +8,7 @@ I have googled quite a bit about dinner places to eat out at, cafes to spend you
 
 __Cafes:__
 
-1. __Matteo Coffea__: Most good cafes are present in Koramangala. Very few in Indiranagar. But there are still a few good ones there. And one of them is Matteo Coffea! If you are looking to spend the perfect weekday evening at a cafe, reading your favourite book with good soft music in the background to soothe your senses, this is certainly the place to be. You are new to Bangalore. And Bangalore is known for its insane weather. So you need to spend time out in the open and enjoy the cool breeze. And this place lets you do exactly that. This place has outside seating area and inside too. I say you be seated outside. Be ready for slow service. But you have plenty of time so that shouldn't deter you! 
+1. [__Matteo Coffea__](https://www.zomato.com/bangalore/matteo-coffea-church-street): Most good cafes are present in Koramangala. Very few in Indiranagar. But there are still a few good ones there. And one of them is Matteo Coffea! If you are looking to spend the perfect weekday evening at a cafe, reading your favourite book with good soft music in the background to soothe your senses, this is certainly the place to be. You are new to Bangalore. And Bangalore is known for its insane weather. So you need to spend time out in the open and enjoy the cool breeze. And this place lets you do exactly that. This place has outside seating area and inside too. I say you be seated outside. Be ready for slow service. But you have plenty of time so that shouldn't deter you! 
 <br>*Don't Miss:* If you like cheesecake, you just can't give their Blueberry Cheesecake a miss! One of the best I have had in Bangalore till now!
 <br>*Be Seated:* Outside please!
 
@@ -16,3 +16,13 @@ __Cafes:__
 <br>*Don't Miss:* The Parmesan Mushroom Soup they serve is best I have had after The Corniche, Mumbai. It is fresh and thick. Won't disappoint!
 <br>*Be Seated:* On the outside or just the inside area on the left overlooking the garden.
 
+3. _Onesta_:
+4. _The Humming Tree_:
+5. _Smoke House Deli_:
+6. _Happy Brew_:
+7. _Toit_:
+8. _Big Brewsky_:
+9. _The Fat Fanny's Cafe_:
+10. _Esplanade_:
+11. _Monkey Bar_:
+12. 
