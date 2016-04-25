@@ -12,7 +12,7 @@ __Cafes:__
 <br>*Don't Miss:* If you like cheesecake, you just can't give their Blueberry Cheesecake a miss! One of the best I have had in Bangalore till now!
 <br>*Be Seated:* Outside please!
 
-2. __Glen's Bakehouse:__ A cute little place located just beside it's bigger, more famous big brother Toit, this place makes extremely tasty pastries which will not disappoint you! You will keep coming back for more! Order cheescake and Lemon Tart for dessert. Be aware though that this place has extremely slow service. If you are looking at home delivery of its desserts then it is fine. They have a small menu with not a lot of variety but if you are going there for the first time, there are enough things to make you go home happy. Order the traditional pesto for pasta. It is delicious. Apparently, it is known for its breakfast. So if you are an early riser and need to have a wholesome breakfast then give its breakfast menu a try!
+2. [__Glen's Bakehouse:__](https://www.zomato.com/bangalore/glens-bakehouse-indiranagar) A cute little place located just beside it's bigger, more famous big brother Toit, this place makes extremely tasty pastries which will not disappoint you! You will keep coming back for more! Order cheescake and Lemon Tart for dessert. Be aware though that this place has extremely slow service. If you are looking at home delivery of its desserts then it is fine. They have a small menu with not a lot of variety but if you are going there for the first time, there are enough things to make you go home happy. Order the traditional pesto for pasta. It is delicious. Apparently, it is known for its breakfast. So if you are an early riser and need to have a wholesome breakfast then give its breakfast menu a try!
 <br>*Don't Miss:* The Parmesan Mushroom Soup they serve is best I have had after The Corniche, Mumbai. It is fresh and thick. Won't disappoint!
 <br>*Be Seated:* On the outside or just the inside area on the left overlooking the garden.
 
@@ -24,5 +24,7 @@ __Cafes:__
 8. _Big Brewsky_:
 9. _The Fat Fanny's Cafe_:
 10. _Esplanade_:
-11. _Monkey Bar_:
+11. _Monkey Bar_: A hard earned weekend deserves some fun and this place will give you all that and more. More than just a pub, this place offers you the perfect ambience and food to party on a Saturday night. I personally am not a big lover of clubs and this kind of a place is the perfect fit for me. If you are not an EDM fan and you want to groove to songs, then they have the perfect playlist lined up for you. If your office does not house a foosball table and a snooker table then this place will certainly keep you hooked. Keep a look out for the 2:1 offers that they introduce randomly at any given point during the night. Just to make you happier!  
+*Don't Miss*: Butter Fly Fish. Nothing more nothing less.
+*Be Seated:* If you are a smoker then be seated on the 1st floor. If you want to shake a leg, take a place on the ground floor. All this, only if you manage to find a table at all!
 12. 
