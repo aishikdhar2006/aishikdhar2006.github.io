@@ -16,7 +16,10 @@ __Cafes:__
 <br>*Don't Miss:* The Parmesan Mushroom Soup they serve is best I have had after The Corniche, Mumbai. It is fresh and thick. Won't disappoint!
 <br>*Be Seated:* On the outside or just the inside area on the left overlooking the garden.
 
-3. _Onesta_:
+3. _Onesta_: Good food is one thing, good food at a cheap rate is another. And this place is famous for the latter. I was initially skecptical about visitng this place. I could not believe one could possible give so much at so little. But good reviews on Zomato pacified me and by the end of it all, I was there, at the Indiranagar outlet. And I wasn't disappointed! Curteous and welcoming waiters, good and prompt service, great lively ambience and most importantly, really good food. They even give you an initial serving of bread till you wait for the real food, at no cost at all! If you are low on budget, hell bent on having the perfect thin crust pizza and you are in Bangalore, close your eyes, follow your heart and you will be here!
+<br>*Don't Miss:* Take the meal for one here. Totally worth the money. And have your own choice of pizza in it, because each one of them is good. I like the thin crusts better.
+<br>*Be Seated:* It is a rooftop place. Be seated on the outer side and that everything else will be just all right!
+
 4. _The Humming Tree_:
 5. _Smoke House Deli_:
 6. _Happy Brew_:
