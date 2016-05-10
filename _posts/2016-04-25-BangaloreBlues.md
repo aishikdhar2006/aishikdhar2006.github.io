@@ -20,7 +20,7 @@ __Cafes:__
 <br>*Don't Miss:* Take the meal for one here. Totally worth the money. And have your own choice of pizza in it, because each one of them is good. I like the thin crusts better.
 <br>*Be Seated:* It is a rooftop place. Be seated on the outer side and that everything else will be just all right!
 
-4. _The Humming Tree_:
+4. _The Humming Tree_: If you are from Bombay you already are quite familiar with The Prithvi Theatre. Bangalore's answer to that, but at a pretty smaller scale of course. New and upcoming theatre groups often perform here. Quite a few outstation acts too. If theatre is your thing 
 5. _Smoke House Deli_:
 6. _Happy Brew_:
 7. _Toit_:
