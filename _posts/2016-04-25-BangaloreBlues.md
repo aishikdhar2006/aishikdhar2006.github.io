@@ -26,7 +26,7 @@ __Cafes:__
 <br>*Be Seated:* Being seate as close to the stage as possible helps!
 
 5. _Smoke House Deli_: I am not really a fine dining person but this place is so good, that it deserves a mention. If you already have found your better half in life and luckily she is in Bangalore, take her here and thank me later! It is situated right on the main road and is two storyed-you surely can't miss it on your way to Indirangar. The ambience is welcoming and so are the waiters. They serve good continental dishes. This place has become so famous that it remains full even on weekdays. So do not forget to resesrve your place before you end up there.
-6. <br>*Don't Miss:* If you love mushroom soup just like me, then try it out here because Smoke House Deli serves the best one in town.
+<br>*Don't Miss:* If you love mushroom soup just like me, then try it out here because Smoke House Deli serves the best one in town.
 <br>*Be Seated:* If it is evening and the weather is perfect then be seated outside-just perfect for a date! 
 
 6. _Happy Brew_: If it's a Thursday, be pretty sure that entire college population of Bangalore is heading to Happy Brew. Because Thursday means Karaoke Night here and what is possibly a better way to have fun with your friends than to go singing together into the night with a beer in one hand and another beer in the other! Be sure to reach this place early because it fills up quickly and is extremely difficult to even find place to stand. Yes, it becomes that crowded! And for all stags, if you want free entry, be sure to take someone of the other gender along, even if it means treating her to a cheap cake later on!
