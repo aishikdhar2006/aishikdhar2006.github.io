@@ -4,6 +4,7 @@ title: Bangalore Blues
 subtitle: For Your Perfect First Week in Bangalore
 ---
 
+
 I have googled quite a bit about dinner places to eat out at, cafes to spend your leisurely evenings at, clubs to go to and pubs to visit in Bangalore but I have never found that one perfect blog with all these places listed together. I arrived in Bangalore one fine winter evening three months back. With no such blog to get help from, I stumbled and stumbled and in the process discovered Bangalore. To relieve newcomers in the city of this impossible decision making burden, I will try to set the itinerary for the first one week. I will list down the starters to order, the drinks to get high on and the seats to take. Hope this blog helps.
 
 __Cafes:__
@@ -31,15 +32,19 @@ __Cafes:__
 6. _Happy Brew_: If it's a Thursday, be pretty sure that entire college population of Bangalore is heading to Happy Brew. Because Thursday means Karaoke Night here and what is possibly a better way to have fun with your friends than to go singing together into the night with a beer in one hand and another beer in the other! Be sure to reach this place early because it fills up quickly and is extremely difficult to even find place to stand. Yes, it becomes that crowded! And for all stags, if you want free entry, be sure to take someone of the other gender along, even if it means treating her to a cheap cake later on!
 <br>*Don't Miss:* Beer. Period.
 <br>*Be Seated:* Take a table near the huge screen. It helps you sing your heart out, because of course, you know the tune but have no idea about the lyrics! Seat yourself downstairs.
+
 7. _Toit_: "Brewing Since 2010". This place was established in 2010 and is still one of the oldest microbreweries in the city (and India too!). This is certainly the best microbrewery in Bangalore and by a mile. Judge it by its beers, it will be the best. Judge it by its food, it will be one the best. Judge it by its ambience, it will win hands down! It has, in recent times, become quite synonymous with Bangalore. So visit this place as soon as possible but at the same time, plan your visit because it is impossible to get a table without waiting for sometime. If you are a bit late, they might even not take names on the waiting list. Best time to visit this would be on weekend afternoons, early evenings on weekdays. 
 <br>*Don't Miss:* If you like dark beer then go for the Dark Knight, otherwise have Tintin Toit. The latter is simply Belgian White Beer.
 <br>*Be Seated:* If you enjoy a smoke or two while you have beer, then be seated right on the top floor. Though they don't have air conditioner on that floor, I quite like the setting there.
+
 8. _Big Brewsky_: Its location is the only con about this place. Situated in Sarjapur with nothing meaningful place around, this is the only refreshing place to go to for all Sarjapur residents who are scared to face the Bangalore traffic. It has a beautfil pool in the middle with the bar on one side, and two storied seating areas on the other side. And this finds a mention here because of its excellent freshly brewed beers! A lot of people might not have been here and hence they don't talk about this place, but if you want to have good beer, go to this place. They hold interesting events from time to time, so look out for that too!
 <br>*Don't Miss:* Try their dark beers. I find them perfectly brewed. Try out Weissbier. 
 <br>*Be Seated:* They have seating just beside the pool, on the opposite side of the bar. And the best part-one can smoke there. So be seated there, if they have a table by the pool free!
+
 9. _Esplanade_: Sun rises from the east and Bengalis need fish and rice-truths since the beginning of time. For all Bongs missing their daily share of fish in their meals, this is the place to be. From the intricately done drawings on the wall to the Bengali speaking waiters, this place will remind you, during the entire course of your meal, of the place you left behind.
 <br>*Don't Miss:* Fish Orly here is as good as it can get. So do not miss that!
 <br>*Be Seated:* No special seating area. Each table is nearly as good as the other.
+
 10. _Monkey Bar_: A hard earned weekend deserves some fun and this place will give you all that and more. More than just a pub, this place offers you the perfect ambience and food to party on a Saturday night. I personally am not a big lover of clubs and this kind of a place is the perfect fit for me. If you are not an EDM fan and you want to groove to songs, then they have the perfect playlist lined up for you. If your office does not house a foosball table and a snooker table then this place will certainly keep you hooked. Keep a look out for the 2:1 offers that they introduce randomly at any given point during the night. Just to make you happier!  
 *Don't Miss*: Butter Fly Fish. Nothing more nothing less.
 *Be Seated:* If you are a smoker then be seated on the 1st floor. If you want to shake a leg, take a place on the ground floor. All this, only if you manage to find a table at all!
